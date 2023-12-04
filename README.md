@@ -1,1 +1,1 @@
-# rsschool-cv
+https://ksarise.github.io/rsschool-cv/cv
